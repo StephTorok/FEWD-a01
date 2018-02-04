@@ -24,4 +24,4 @@ I can do a lot better than that already and look forward to diving a lot deeper 
 
 
 One of my new found hobbys during the IMCP is video editing. 
-Good friends of mine in Austria have a band and they asked me to make a video for their favorite song called _Der Folger_ (_The Follower_) You can watch it [here](https://www.youtube.com/watch?v=_MO_nRJcrV8).  
+Good friends of mine in Austria have a band and they asked me to make a video for their favorite song called _Der Folger_ (_The Follower_). You can watch it [here](https://www.youtube.com/watch?v=_MO_nRJcrV8).  
